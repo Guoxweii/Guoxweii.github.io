@@ -1,1 +1,1 @@
-欢迎观看我的[简历](http://littleluren.github.io/)
+欢迎观看我的[简历](https://Guoxweii.github.io/)
